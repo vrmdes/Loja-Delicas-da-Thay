@@ -1,0 +1,1 @@
+# Loja-Delicas-da-Thay
